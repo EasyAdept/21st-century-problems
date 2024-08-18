@@ -43,3 +43,10 @@ The 21st Century Problems That Nobody Talks About (Or Maybe You Do)
 18. **Technology Dependency**: Relying on tech so much that you’re thinking of asking your smart fridge for relationship advice.
 
 19. **Shopping for Status**: Buying luxury items to look important, even though your bank account is trying to tell you a different story.
+
+20. **Addiction to Instant Gratification**: Craving the rush of instant rewards so much that even your microwave seems like it's taking too long to heat up your popcorn.
+21. **Hyper-Sexuality**: Prioritizing your next hookup so much that your dating apps have started sending you "Congratulations! You've reached level 10!" notifications.
+22. **Addiction to Sense-Gratification**: Seeking constant sensory stimulation like your life is a never-ending carnival ride. Spoiler: Cotton candy is not a balanced diet.
+23. **Subscription Overload**: Signing up for so many streaming services and monthly boxes that your credit card is starting to question your life choices.
+24. **Over-Editing Social Media Posts**: Spending so long perfecting the filters and captions that you could’ve actually lived the adventure you’re trying to fake.
+25. **Personal Branding Obsession**: Crafting your online persona with so much dedication that your actual life is starting to feel like a subplot in someone else’s story.
